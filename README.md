@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RaceNinja
+- 👀 I’m interested in ... too much I guess
+- 🌱 I’m currently learning ... python
+- 💞️ I’m looking to collaborate on ... not really anything
+- 📫 How to reach me ... please don't
